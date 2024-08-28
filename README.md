@@ -1,6 +1,6 @@
 ### Hi there 👋, Hi there ! Gianfranco Here !
-#### entusiast Cybersecurity analyst
-(![github](Red Grey Hacker Desktop Wallpaper.png)
+#### enthusiastic Cybersecurity analyst
+(![github](Red Grey Hacker Desktop Wallpaper.png))
 Dynamic professional with a solid foundation in Food & Beverage Management, now fully
 committed to a career in technology following a successful transition into the IT sector. After a
 significant event in late 2022, I redirected my focus and completed a comprehensive technology
